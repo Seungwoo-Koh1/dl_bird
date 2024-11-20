@@ -7,3 +7,4 @@
 
 
 #grad cam, 1창의적인 방법론, 2최신기술, 분석 잘 정리, 3혁신성
+https://stingy-periodical-217.notion.site/AI-143362bfbf5c8018941ff5e64ebb415b?pvs=4
